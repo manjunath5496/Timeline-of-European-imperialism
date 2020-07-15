@@ -115,7 +115,7 @@
 <li>1861&ndash;1867:&nbsp;<a class="mw-redirect" title="French intervention in Mexico" href="https://en.wikipedia.org/wiki/French_intervention_in_Mexico">French intervention in Mexico</a>; United States demands French withdrawal after 1865; France removes its army, and its puppet Emperor is executed.</li>
 <li>1862: Treaty of Saigon; France occupies three provinces in southern Vietnam.</li>
 <li>1863: France establishes a protectorate over&nbsp;<a title="History of Cambodia" href="https://en.wikipedia.org/wiki/History_of_Cambodia">Cambodia</a>.</li>
-<li>1867:&nbsp;<a title="Constitution Act, 1867" href="https://en.wikipedia.org/wiki/Constitution_Act,_1867">British North America Act, 1867</a>&nbsp;creates the Dominion of&nbsp;<a title="Canada" href="https://en.wikipedia.org/wiki/Canada">Canada</a>, a federation with internal self-government; foreign and defence matters are still handled by London.<sup id="cite_ref-47" class="reference"><a href="https://en.wikipedia.org/wiki/Timeline_of_European_imperialism#cite_note-47">[47]</a></sup></li>
+<li>1867:&nbsp;<a title="Constitution Act, 1867" href="https://en.wikipedia.org/wiki/Constitution_Act,_1867">British North America Act, 1867</a>&nbsp;creates the Dominion of&nbsp;<a title="Canada" href="https://en.wikipedia.org/wiki/Canada">Canada</a>, a federation with internal self-government; foreign and defence matters are still handled by London.</li>
 </ul>
 <div>&nbsp;</div>
 <h2><span id="1870.E2.80.931914"></span><span id="1870&ndash;1914" class="mw-headline">1870&ndash;1914</span></h2>
